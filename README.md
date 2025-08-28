@@ -1,4 +1,4 @@
 # bertie zhang's project hub
-Salutations to whoever has had the pleasure of interacting with this here barren page.<br/>  
+Very barren, very lonely in here. NTS: add pictures later<br/>  
 My PROJECTS so far: <br/>  
 1. 
