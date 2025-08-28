@@ -1,2 +1,4 @@
-# YOO HOO
-Hello to whoever has had the pleasure of interacting with this here barren page.
+# bertie zhang's project hub
+Salutations to whoever has had the pleasure of interacting with this here barren page.
+My PROJECTS so far:
+1. 
